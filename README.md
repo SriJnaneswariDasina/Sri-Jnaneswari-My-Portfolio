@@ -1,4 +1,4 @@
 # Sri-Jnaneswari-My-Portfolio
 
 Check out my portfolio created using Canva:
-[My Portfolio](https://sri-jnaneswari-my-portfolio.my.canva.site/)
+[My Portfolio](https://dvrddvn.wixsite.com/my-portfolio)
